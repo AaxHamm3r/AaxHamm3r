@@ -3,7 +3,6 @@
 - 🌱 I’m currently learning databases 
 - 💞️ I’m looking to collaborate on anything 🤷‍♀️
 - 📫 How to reach me nabra020@fiu.edu
-- 😄 Pronouns: ...
 - ⚡ Fun fact: i have no idea what im doing 💫
 
 <!---
